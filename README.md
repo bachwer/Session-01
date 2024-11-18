@@ -17,6 +17,6 @@ Session 1
 
 [Giỏi]8. Luyện tập giải thuật: https://s.net.vn/KXNF
 
-[Xuất sắc]9. Luyện tập giải thuật: 
+[Xuất sắc]9. Luyện tập giải thuật: https://s.net.vn/EcqR
 
 [Xuất sắc]10. Luyện tập giải thuật: https://s.net.vn/0Tmo
